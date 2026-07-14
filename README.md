@@ -2,7 +2,6 @@
 this is broken 
 ⠀⠀ ㅤ<p align="center">![](https://komarev.com/ghpvc/?username=Beanelli&color=FFFFFF&label=A𝗇𝗈𝚖𝒶𝘭𝒚&style=plastic&abbreviated=true)
 <p align="center"><a href="https://inkayyy.straw.page">𝙨t𝚛𝚊w𝘱𝙖gₑ</a></p>
-
 ⠀⠀
 
 
